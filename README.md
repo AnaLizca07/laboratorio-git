@@ -1,6 +1,6 @@
 Ana Lucelly Lizcano Acero❤️
 
-Esteban Salazar Mejia :p
+Esteban Salazar Mejia
 
 
 Juan Esteban Saavedra Arango
